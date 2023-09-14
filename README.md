@@ -1,5 +1,5 @@
 [![MasterHead]( https://media.tenor.com/giZq2k1LkPUAAAAd/connor.gif)](https://media1.popsugar-assets.com/files/thumbor/qM8DQETh1h1mrHvwkNRI5x5MiVc=/fit-in/500x253/filters:format_auto():upscale()/2015/04/13/848/n/1922283/0d51520fd47f2372_Cersei-Lannister.gif)
-<h1 align="center">Hi 👋, I'm ONUR</h1>
+<h1 align="center">Hi 👋, I'm Yanso</h1>
 <h3 align="center">Elabo, cikelo, babattala bida, bida, bida ,bida neyya seno</h3>
 <img align="right" alt="Jinx" width="400" src="https://www.icegif.com/wp-content/uploads/2021/11/icegif-1200.gif">
 
